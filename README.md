@@ -18,7 +18,7 @@
  
 <br>
  
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
+### Para mais informações ou contato, me siga nas redes abaixo <3
  
 <div> 
   
@@ -36,8 +36,6 @@
 </div>
  
 <br>
- 
-### Pra conteúdo sobre programação me segue a gente nas redes abaixo!
  
 <div> 
   
